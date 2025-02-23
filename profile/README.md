@@ -23,23 +23,42 @@
 
 ## DpBoss Satta Matka Result Final 2025
 
-## MILAN MORNING
-Loading... 
+# Sunday Bazaar
+**166-38-990**  
+_Refresh_
 
-## KARNATAKA DAY
-Loading...
+# Bombay Day
+**234-9**  
+_Refresh_
 
-## KALYAN MORNING
-Loading...
+# Super Matka
+**377-7**  
+_Refresh_
 
-## RAJDHANI MORNING [main]
-Loading...
+# Bombay Rajshree Day
+**169-6**  
+_Refresh_
 
-## ALISHAN DAY
-Loading...
+# Bhagyalaxmi
+**148-30-578**  
+_Refresh_
 
-## GEETA MORNING
-Loading...
+# Central Bazar
+_Loading..._  
+_Refresh_
 
-## MOHINI
-Loading...
+# Maharaj Day
+_Loading..._  
+_Refresh_
+
+# Maharashtra
+**788-3**  
+_Refresh_
+
+# Sita Day
+**188-79-117**  
+_Refresh_
+
+# Srilaxmi Day
+**899-61-146**  
+_Refresh_
