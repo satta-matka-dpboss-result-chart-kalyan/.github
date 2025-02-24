@@ -23,42 +23,93 @@
 
 ## DpBoss Satta Matka Result Final 2025
 
-# Sunday Bazaar
-**166-38-990**  
-_Refresh_
+ 
 
-# Bombay Day
-**234-9**  
-_Refresh_
+## Milan Morning
+-  : 379-94-248
+-   : 10:15 AM - 11:15 AM
 
-# Super Matka
-**377-7**  
-_Refresh_
+## Sridevi
+-  : 378-80-145
+-   : 11:35 AM - 12:35 PM
 
-# Bombay Rajshree Day
-**169-6**  
-_Refresh_
+## Kalyan Morning
+-  : 146-13-580
+-   : 11:00 AM - 12:02 PM
 
-# Bhagyalaxmi
-**148-30-578**  
-_Refresh_
+## Padmavathi
+-  : 466-62-480
+-   : 11:40 AM - 12:40 PM
 
-# Central Bazar
-_Loading..._  
-_Refresh_
+## Madhuri
+-  : 349-69-289
+-   : 11:45 AM - 12:45 PM
 
-# Maharaj Day
-_Loading..._  
-_Refresh_
+## Rajdhani Morning [Main]
+-  : 669-12-660
+-   : 11:25 AM - 12:55 PM
 
-# Maharashtra
-**788-3**  
-_Refresh_
+## Sridevi Morning
+-  : 160-73-689
+-   : 09:30 AM - 10:30 AM
 
-# Sita Day
-**188-79-117**  
-_Refresh_
+## Maharani
+-  : 699-42-237
+-   : 12:15 PM - 02:15 PM
 
-# Srilaxmi Day
-**899-61-146**  
-_Refresh_
+## Karnataka Day
+-  : 490-35-249
+-   : 10:00 AM - 11:00 AM
+
+## Time Bazar Morning
+-  : 116-88-134
+-   : 11:10 AM - 12:10 PM
+
+## Time Bazar
+-  : 770-41-290
+-   : 01:10 PM - 02:10 PM
+
+## Tara Mumbai Day
+-  : 579-11-128
+-   : 01:35 PM - 03:00 PM
+
+## Prabhat
+-  : 679-22-237
+-   : 01:30 PM - 03:00 PM
+
+## Diamond
+-  : 456-59-379
+-   : 01:30 PM - 03:00 PM
+
+## Time Bazar Day
+-  : 340-70-370
+-   : 02:00 PM - 04:00 PM
+
+## BK Bazar
+-  : 345-21-470
+-   : 02:00 PM - 04:00 PM
+
+## Milan Day
+-  : 266-4
+-   : 03:20 PM - 05:20 PM
+
+## Main Bazar Day
+-  : 123-6
+-   : 03:35 PM - 05:35 PM
+
+## Puna Bazar
+-  : 130-44-590
+-   : 01:15 PM - 03:15 PM
+
+## Kalyan
+-  : 447-5
+-   : 03:45 PM - 05:45 PM
+
+## Sridevi Night
+-  : 160-72-778
+-   : 07:15 PM - 08:15 PM
+
+## Diamond Night
+-  : 167-41-236
+-   : 08:00 PM - 09:00 PM
+
