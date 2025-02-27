@@ -24,23 +24,23 @@
 ## DpBoss Satta Matka Result Final 2025
 
 ## Milan Morning
--  : 136-01-399
+-  : Loading... 
 -   : 10:15 AM - 11:15 AM
 
 ## Sridevi
--  : 378-80-145
+-  : Loading... 
 -   : 11:35 AM - 12:35 PM
 
 ## Kalyan Morning
--  : 369-81-146
+-  : Loading... 
 -   : 11:00 AM - 12:02 PM
 
 ## Padmavathi
--  : 466-62-480
+-  : Loading... 
 -   : 11:40 AM - 12:40 PM
 
 ## Madhuri
--  : 349-69-289
+-  : Loading... 
 -   : 11:45 AM - 12:45 PM
 
 ## Rajdhani Morning [Main]
